@@ -1,19 +1,19 @@
-* What is their background, and thus their motivation?
-a childhood without society
-years spent trying to understand reality
-a powerful LSD trip
-meditating
+* What is their background, and thus their motivation?  
+a childhood without society  
+years spent trying to understand reality  
+a powerful LSD trip  
+meditating  
 
-* What is their quest, their overall goal?
-To not believe in anything
+* What is their quest, their overall goal?  
+To not believe in anything  
 
 * What is their conflicting goal? (giving them a dual character)
 
 
-* How do they break stereotype?
+* How do they break stereotype?  
 
-* How are they wacky and exaggerated?
-"I don't believe you." -to everything
+* How are they wacky and exaggerated?  
+"I don't believe you." -to everything  
 
 * How are they interesting to know?
 
