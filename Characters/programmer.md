@@ -2,7 +2,7 @@
 Uber nerd programmer all his life; one night tries to find computer and is overcome with a terrible pain. smashes up room and computer. From that point on cannot use screen technology at all.
 
 **What is their quest, their overall goal?**  
-To overcome his full-body RSI and be able to do what he loves again - program business applications to replace spreadsheets, surf the internet all night and masturbate.
+To overcome his full-body RSI and be able to do what he loves again - program business applications to replace spreadsheets, surf the internet all night.
 
 **What is their conflicting goal? (giving them a dual character)**  
 To marry Anita from sales.
