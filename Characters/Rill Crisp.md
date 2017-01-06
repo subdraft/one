@@ -26,7 +26,7 @@ Uses an insane amount of corporate jargon. Obsessed with normality, follows the 
 
 
 **How is she interesting to know?**
-Knows exactly what is normal, can tell you the strange and arcane necessaries to achieve a certain desired outcome through the alchemy of normality. Always pefectly turned out in every way, unless she feels slighted, at which point she gets very angry.
+Knows exactly what is normal, can tell you the strange and arcane necessaries to achieve a certain desired outcome through the alchemy of normality. Always pefectly turned out in every way, unless she feels slighted, at which point she gets very angry. Has a washer/dryer that burns everything in it to a cinder if you use the dryer function.
 
 
 **How are they competent, effective and extraordinarily good at what they do?**  
